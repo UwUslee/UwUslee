@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [girlpiss.tech](https://girlpiss.tech)
 
-- 📫 How to reach me:
+- 📫 Reach me 
 **[in twitter dms](https://x.com/girlpizz)**
 
 <h3 align="left">Connect with me:</h3>
