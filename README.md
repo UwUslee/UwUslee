@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://girlpiss.tech](https://girlpiss.tech)
 
-- 📫 How to reach me **example@email.com**
+- 📫 How to reach me **x.com/girlpizz**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
