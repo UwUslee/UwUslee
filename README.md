@@ -3,13 +3,14 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=uwuslee&label=Profile%20views&color=0e75b6&style=flat" alt="uwuslee" /> </p>
 
-- 🔭 I’m currently working on [My website](https://girlpiss.tech)
+- 🔭 I’m currently working on [my website](https://girlpiss.tech)
 
 - 🌱 I’m currently learning **Javascript and Python**
 
 - 👨‍💻 All of my projects are available at [girlpiss.tech](https://girlpiss.tech)
 
-- 📫 How to reach me **[in twitter dms](https://x.com/girlpizz)**
+- 📫 How to reach me:
+**[in twitter dms](https://x.com/girlpizz)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
