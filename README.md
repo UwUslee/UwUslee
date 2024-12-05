@@ -7,8 +7,6 @@
 
 - 🌱 I’m currently learning **Javascript and Python**
 
-- 🤝 I’m looking for help with **learning Python**
-
 - 👨‍💻 All of my projects are available at [girlpiss.tech](https://girlpiss.tech)
 
 - 📫 How to reach me **[in twitter dms](https://x.com/girlpizz)**
