@@ -9,9 +9,9 @@
 
 - 🤝 I’m looking for help with **learning Python**
 
-- 👨‍💻 All of my projects are available at [https://girlpiss.tech](https://girlpiss.tech)
+- 👨‍💻 All of my projects are available at [girlpiss.tech](https://girlpiss.tech)
 
-- 📫 How to reach me **x.com/girlpizz**
+- 📫 How to reach me **[in twitter dms](https://x.com/girlpizz)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
